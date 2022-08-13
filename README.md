@@ -1,4 +1,3 @@
 - 👋 Hi, I’m @AranyaSen
 - 👀 I’m interested in coding and I like to enhance my knowledge on different Languages whenever I get the time.
 - 🌱 I’m currently pursuing BCA.
-- 
